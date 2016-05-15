@@ -1,6 +1,6 @@
 # Hello-Word
-  Slam to all!!!
-I need you for sporting me because,
-I want to buil a website for Online shoping. 
-Simply means built a web site for e-comerace.
+Salam to all !!!
+I need all of you because,
+I want to make a web site for online services.
+Simply means I wish to work on e-comerace. 
 
